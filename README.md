@@ -1,4 +1,4 @@
-<hr>
+[![Tak-berjudul693-20260915221618.png](https://i.postimg.cc/GhDfBF08/Tak-berjudul693-20260915221618.png)](https://postimg.cc/3dK1VDxY)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Unkempt&size=30&pause=1000&color=FF892B&vCenter=true&multiline=true&width=435&height=100&lines=I'm+a+dreamer%2C;%E3%85%A4%E3%85%A4%E3%85%A4+A+distant+dreamer...)](https://git.io/typing-svg)
 
@@ -30,4 +30,4 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Unkempt&size=30&pause=1000&color=FF892B&vCenter=true&multiline=true&width=435&height=100&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4Dreaming+for+hope%2C+;+from+today.)](https://git.io/typing-svg)
 
-<hr>
+[![Tak-berjudul693-20260915221624.png](https://i.postimg.cc/tRwfCrcF/Tak-berjudul693-20260915221624.png)](https://postimg.cc/9zP1LBCf)
