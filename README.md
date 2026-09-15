@@ -1,4 +1,4 @@
-[![Tak-berjudul692-20260915222850.png](https://i.postimg.cc/j21rst7L/Tak-berjudul692-20260915222850.png)](https://postimg.cc/YLQPRc8H)
+[![Tak-berjudul692-20260915222857.png](https://i.postimg.cc/wMrd6gmL/Tak-berjudul692-20260915222857.png)](https://postimg.cc/xNLZ5rg1)
 
 ㅤㅤㅤㅤㅤ
 
@@ -38,4 +38,4 @@
 
 ㅤㅤㅤㅤㅤ
 
-[![Tak-berjudul692-20260915222857.png](https://i.postimg.cc/wMrd6gmL/Tak-berjudul692-20260915222857.png)](https://postimg.cc/xNLZ5rg1)
+[![Tak-berjudul692-20260915222850.png](https://i.postimg.cc/j21rst7L/Tak-berjudul692-20260915222850.png)](https://postimg.cc/YLQPRc8H)
