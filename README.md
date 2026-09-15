@@ -10,17 +10,17 @@
 
 ͙͘͡★
 
-aww my cute 𝒃𝒂𝒃y͟ ..
+𝑎𝘸𝑤 𝑚𝘺 𝘤𝑢𝘵𝑒 𝒃𝒂𝒃y͟ .. (¬`‸´¬)
 
 ͙͘͡★
 
-<a href="https://vrezensky.atabook.org">
+𓏵 <a href="https://vrezensky.atabook.org">
     <img src="https://i.postimg.cc/gcRXQQyh/Tak-berjudul692-20260915211744.png" width=15%>
-</a>
+</a> 𓏵
 
  ͙͘͡★
  
-hiii [𝓌𝒊𝒏g͟!!](https://www.tiktok.com/@dhhehchehchehchhd) , hiii [𝓼𝒂𝒊𝒏z͟!!](https://github.com/e-mailmyheart)
+𓏵 ℎ𝑖𝑖 [𝓌𝒊𝒏g͟!!](https://www.tiktok.com/@dhhehchehchehchhd) 𖹭, ℎ𝑖𝑖 [𝓼𝒂𝒊𝒏z͟!!](https://github.com/e-mailmyheart) 𖹭 𓏵
 
 </div>
 
