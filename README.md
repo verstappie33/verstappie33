@@ -4,10 +4,9 @@
 
 <img src = "https://i.postimg.cc/PJqhY7yK/Screenshot-2026-09-12-10-02-40-06-40deb401b9ffe8e1df2f1cc5ba480b12.jpg" width=35% align= right>
 
-
 <div align = "center">
 
-![Static Badge](https://img.shields.io/badge/WDCs-%E2%98%86%E2%98%86%E2%98%86%E2%98%86-orange) ![Static Badge](https://img.shields.io/badge/wins-71-orange)
+![Static Badge](https://img.shields.io/badge/WDCs-%E2%98%86%E2%98%86%E2%98%86%E2%98%86-orange)  ![Static Badge](https://img.shields.io/badge/MV33_wins-71-orange)
 ㅤㅤㅤ
   
 ͙͘͡★
@@ -16,7 +15,7 @@ aww my cute baby ..
 
 ͙͘͡★
 
- [ata](https://vrezensky.atabook.org)
+<img src= "https://i.postimg.cc/gcRXQQyh/Tak-berjudul692-20260915211744.png" width=15%>
 
  ͙͘͡★
  
