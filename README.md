@@ -10,7 +10,7 @@
 
 ͙͘͡★
 
-aww my cute baby ..
+aww my cute 𝒃𝒂𝒃y͟ ..
 
 ͙͘͡★
 
@@ -20,7 +20,7 @@ aww my cute baby ..
 
  ͙͘͡★
  
-hiii [wing!!](https://www.tiktok.com/@dhhehchehchehchhd) , hiii [sainz!!](https://github.com/e-mailmyheart)
+hiii [𝓌𝒊𝒏g͟!!](https://www.tiktok.com/@dhhehchehchehchhd) , hiii [𝓼𝒂𝒊𝒏z͟!!](https://github.com/e-mailmyheart)
 
 </div>
 
