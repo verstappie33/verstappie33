@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤ
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Unkempt&size=30&pause=1000&color=FF892B&vCenter=true&multiline=true&width=435&height=150&lines=I'm+thinking+about,%2C;%E3%85%A4%E3%85%A4%E3%85%A4+All+the+things,%2C;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4+I'd+like+to+do+in+my+life...)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Unkempt&size=30&pause=10000&color=FF892B&vCenter=true&multiline=true&width=435&height=150&lines=I'm+thinking+about,%2C;%E3%85%A4%E3%85%A4%E3%85%A4+All+the+things,%2C;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4+I'd+like+to+do+in+my+life...)](https://git.io/typing-svg)
 
 <img src = "https://i.postimg.cc/PJqhY7yK/Screenshot-2026-09-12-10-02-40-06-40deb401b9ffe8e1df2f1cc5ba480b12.jpg" width=35% align= right>
 
@@ -32,7 +32,7 @@
 
 ㅤㅤㅤㅤㅤ
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Unkempt&size=30&pause=1000&color=FF892B&vCenter=true&multiline=true&width=435&height=150&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4+I'm+a+dreamer..%2C+;%E3%85%A4%E3%85%A4+A+distant+dreamer..%2C+;Dreaming+for+hope,+from+today.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Unkempt&size=30&pause=10000&color=FF892B&vCenter=true&multiline=true&width=435&height=150&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4+I'm+a+dreamer..%2C+;%E3%85%A4%E3%85%A4+A+distant+dreamer..%2C+;Dreaming+for+hope,+from+today.)](https://git.io/typing-svg)
 
 ㅤㅤㅤㅤㅤ
 
