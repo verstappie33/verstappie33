@@ -6,29 +6,27 @@
 
 <div align = "center">
 
-![Static Badge](https://img.shields.io/badge/WDCs-%E2%98%86%E2%98%86%E2%98%86%E2%98%86-orange)  ![Static Badge](https://img.shields.io/badge/MV33_wins-71-orange)
-ㅤㅤㅤ
-  
+![Static Badge](https://img.shields.io/badge/WDCs-%E2%98%86%E2%98%86%E2%98%86%E2%98%86-orange)  
+
 ͙͘͡★
 
 aww my cute baby ..
 
 ͙͘͡★
 
-<img src= "https://i.postimg.cc/gcRXQQyh/Tak-berjudul692-20260915211744.png" width=15%>
+<a href="https://vrezensky.atabook.org">
+    <img src="https://i.postimg.cc/gcRXQQyh/Tak-berjudul692-20260915211744.png" width=15%>
+</a>
 
  ͙͘͡★
  
 hiii [wing!!](https://www.tiktok.com/@dhhehchehchehchhd) , hiii [sainz!!](https://github.com/e-mailmyheart)
 
+ ͙͘͡★
+ 
+![Static Badge](https://img.shields.io/badge/MV33_wins-71-orange)
+
 </div>
-
-ㅤㅤㅤ
-ㅤㅤㅤ
-
-ㅤㅤㅤ
-
-ㅤㅤㅤ
 
 <div align = "right">
 
