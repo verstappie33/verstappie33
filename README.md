@@ -10,7 +10,7 @@
 
 <div align = "center">
 
-𓏵 ![Static Badge](https://img.shields.io/badge/WDCs-%E2%98%86%E2%98%86%E2%98%86%E2%98%86-orange) 𓏵 ![Static Badge](https://img.shields.io/badge/MV33_wins-71-orange) 𓏵 ![](https://komarev.com/ghpvc/?username=verstappie33&label=★.☘︎˖&color=orange)
+𓏵 ![Static Badge](https://img.shields.io/badge/WDCs-%E2%98%86%E2%98%86%E2%98%86%E2%98%86-orange) 𓏵 ![Static Badge](https://img.shields.io/badge/MV33_wins-71-orange) 𓏵 ![](https://komarev.com/ghpvc/?username=verstappie33&label=★.☘︎˖&color=orange) 𓏵
 
 ͙͘͡★
 
